@@ -1,1 +1,1 @@
-An easier way to type enye.
+An easier way to copy enye.
